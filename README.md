@@ -2,4 +2,4 @@
 
 My first repo
 
-I am a fun-loving, hard-working and a practical guy
+I am a fun-loving and a practical guy
